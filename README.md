@@ -20,7 +20,7 @@
   and data-driven solutions that create meaningful impact.
 
 * 📫 How to reach me:
-  * LinkedIn: linkedin.com/in/ifeoma-ugwu-637a17242
+  * LinkedIn: www.linkedin.com/in/ifeoma-ugwu-637a17242 
   * Email: preciousgiftdgreat@gmail.com
 
 ---
